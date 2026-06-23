@@ -1,1 +1,0 @@
-# 36kyoutei_zangyoutimer_11
